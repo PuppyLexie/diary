@@ -21,6 +21,8 @@
 # 📆 09.09.2025
 Today I started with the task I received. I did some research and wrote everything down. I'm still only at the beginning, so it'll be more and more I need to add in order to fulfill the requirements. It was actually really interesting. Being locked while fulfilling my duty. I somehow felt like a personal assistant... a.. naughty, girly, personal assistant. Maybe I'll wear a skirt and stockings next time.. I think it'd be even more intriguing 😇. I'm also working on a cute gift for her. I hope she'll like it ❤️.
 
+I also thought about some nice things to do with Natalie. It'd be really awesome if we could watch a movie together sometime. Until we finally meet in person... that's a whoooole different level of excitement 😁. I can't wait to finalle see her, let alone spend time in person together.. cuddling in bed, listening to each other's stories, brushing through her hair...
+
 
 # 📆 08.09.2025
 Today was awesome!
