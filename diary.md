@@ -16,7 +16,20 @@
 # 🎀 <pink>Puppy Lexie's</pink> Personal Diary 🎀
 
 
-# 📆 09.09.2025
+# 📆 11.09.2025
+Oh boy, where do I even start... No uni today, seems like everyone's getting sick, played some games, watched some YouTube...
+
+But my personal highlight of today: I <b>actually</b> gave my logins (of my kinky accounts) to my Goddess. She can freely browse around my e-mails, my hub, throne, and pretty much every website I have an account for. We agreed that she won't change passwords, only browse through my account, and who knows, maybe she'll even create some playlists (where it's possible) 😁. She has the full control of everything (that's not pw related), so even if she wanted to use it for her personal pleasure, because she may not have an account for that specific website, she's free to use mine.\
+Since I know you're reading every entry here, I want you to know that I completely trust you on this one as well. I had to jump over my shadow, but here we are now ❤️🤍❤️\
+I may just need to give her instructions on how she can use a second profile, so she won't have any mix ups with her own accounts and everything.
+
+And besides all that, I worked on the assignment again. I didn't get as much done as I wanted. Reading, understanding and writing requires more energy than I remember 😓😆
+
+Anyways... back to work for now. I should get everything done by tomorrow night, at least I hope so..
+
+
+
+# 📆 10.09.2025
 Today I made a lot of progress on my task. It was quite interesting, actually. Not only did I help out my precious Mistress, but I also learned a lot about history. I won't go into detail, but I didn't know ~90% of what I found out.
 
 Besides my task, I also had the chance to watch a video together with her. I could've chosen better, but it was quite good actually. We have this ritual to watch some spicy content in the evenings. While she enjoys herself, I just sit there, watching, while being caged... But it's really nice. I really love spending time with her ❤️.
