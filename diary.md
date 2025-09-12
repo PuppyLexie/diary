@@ -16,6 +16,15 @@
 # 🎀 <pink>Puppy Lexie's</pink> Personal Diary 🎀
 
 
+# 📆 12.09.2025
+Today I was home alone... so after waking up, I immediately changed into my nightdress, put on my collar, locked myself up again, in another cage this time to take some spicy pictures, and had a little "fun" with my vibrator. No cummies, just a little teasing.
+
+I was really looking forward to show Natalie the pictures I took, but she's too busy as it seems. I just hope everything's ok and that she's safe, unfortunately you never now nowadays.
+
+Since I'm already very tired, I'll go to sleep now. Hopefully we'll text again tomorrow. Ireally want to send her those pictures and talk about the account takeover stuff😇.
+
+
+
 # 📆 11.09.2025
 Oh boy, where do I even start... No uni today, seems like everyone's getting sick, played some games, watched some YouTube...
 
